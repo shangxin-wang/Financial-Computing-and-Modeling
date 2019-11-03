@@ -1,2 +1,2 @@
-# Financial-Computing-and-Modeling (GDUT-ON GOING)
+# Financial Computing and Modeling (GDUT-ON GOING)
 
